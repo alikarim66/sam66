@@ -1,0 +1,2 @@
+# sam66
+Allowed 
